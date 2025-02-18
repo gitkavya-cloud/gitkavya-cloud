@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gitkavya-cloud
-- 👀 I’m interested to learn about varous things. 
+- 👀 I’m interested to learn about various things. 
 - 🌱 I’m currently learning to work on github with generative ideas and applications. 
 - 💞️ I’m looking to collaborate with peers and mentors on this platform .
 - 📫 You can contact me via email- kaurav.kavya22@gmail.com or on this platform. 
